@@ -1,4 +1,4 @@
-# 
+# Personalizado low cap gem sniper bot plantillas para Mac OS | Automático low cap gem sniper bot plantillas para PC Windows. Con fuentes en tiempo real y comercio apalancado — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
